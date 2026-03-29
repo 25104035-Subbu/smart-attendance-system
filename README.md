@@ -1,1 +1,1 @@
-# smart-attendance-system
+https://preview--bloom-aid-app.lovable.app/
